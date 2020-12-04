@@ -5,3 +5,8 @@ Fried rice is a quick and delicious way to transform leftovers into something de
 Sesame oil > any other oil.
 
 Once you buy sesame oil (yes, you do need another oil), you'll want to use it in everything. It's got a rich toasty, nutty flavor. But be careful: A little bit goes a long way. 
+
+INGREDIENTS:
+
+3 tbsp. sesame oil, divided 3 large eggs Kosher salt 2 carrots, diced 3 green onions, thinly sliced, white and green parts divided 3 cloves garlic, minced 1 tbsp. peeled and minced ginger (from a 1" piece) 4 c. cooked long grain rice (preferably leftover) 3/4 c. frozen peas 3 tbsp. low-sodium soy sauce
+
